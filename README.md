@@ -11,3 +11,5 @@ More information on the DevForum post; https://devforum.roblox.com/t/1735220
 Session 42 Studios; https://session42studios.com/
 
 Discord; https://discord.gg/6u46JvPgPP
+
+Model; https://www.roblox.com/library/9171111506/
